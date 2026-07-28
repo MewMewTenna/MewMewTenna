@@ -2,6 +2,6 @@
 
 ### $\color{#FFFF61}{\text{▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄}}$
 
-## $\color{#E72A8B}{\text{mew mew ⸝⸝ tenna ⸝⸝ cross }}$
+## $\color{#E72A8B}{\text{tenna ⸝⸝ cross }}$
 
-## $\color{#E72A8B}{\text{they/them ⸝⸝ nonbinary ⸝⸝ dni <13 and 17< unless we're close friends. }}$
+## $\color{#E72A8B}{\text{they/them ⸝⸝ nonbinary }}$

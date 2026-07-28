@@ -4,4 +4,4 @@
 
 ## $\color{#E72A8B}{\text{uu can call me tenna!! }}$
 
-## $\color{#E72A8B}{\text{they/them ⸝⸝ nonbinary }}$
+## $\color{#E72A8B}{\text{they/them/he/him ⸝⸝ nonbinary }}$
